@@ -21,7 +21,7 @@ The greatest enemy is a white canvas in my experience - you just cant make any k
 
 Ok, I really want to get the definition of the upper parts and body to a spot that I am fairly happy with in terms of major bits.  I want to kind of know what is skin, what is cloth, what is sword handle, etc... I also scrub in more color in some shadows, though it's hard to tell here, and a bit in the sky and bottom... I'm still very unsure about what's gonna happen in the background..
 
-## Step four
+## Step five
 ![Image Step Five, lets figure out the non-figure aspects a little more](20160503_220120.jpg)
 I've finally had to hang it on the wall in order to reach it all. Decide to try some rocky mountains set at several disances and a very rocky foreground.  Also experimenting with various cloud-forms and colors.  The painting is now up high and not easily moved and wet, so I've had to take to shooting in from the side to kill some of the glare.  Still, the left middle is seriously over-shined and washed out here- the reddish-yellow tinged clouds are actually quite nice in person and her skin not so intense, nor wite on the arm.  I think I will probably keep all of these clouds, where they are, but begin to push puts of them 'back' and restore a little of the blue I'm fairly happy with the first cut at the mountains in the distance - the rocks in the foreground still need some figuring out, but I like the (not well represented here) depth of blues, purples and oranges in the shadows of the rocks... I'll figure it out eventually :)  
 
