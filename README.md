@@ -26,7 +26,7 @@ Ok, I really want to get the definition of the upper parts and body to a spot th
 I've finally had to hang it on the wall in order to reach it all. Decide to try some rocky mountains set at several disances and a very rocky foreground.  Also experimenting with various cloud-forms and colors.  The painting is now up high and not easily moved and wet, so I've had to take to shooting in from the side to kill some of the glare.  Still, the left middle is seriously over-shined and washed out here- the reddish-yellow tinged clouds are actually quite nice in person and her skin not so intense, nor wite on the arm.  I think I will probably keep all of these clouds, where they are, but begin to push puts of them 'back' and restore a little of the blue I'm fairly happy with the first cut at the mountains in the distance - the rocks in the foreground still need some figuring out, but I like the (not well represented here) depth of blues, purples and oranges in the shadows of the rocks... I'll figure it out eventually :)  
 
 ## Step six
-![Image Step Six, alright, what about this outfit?](20160503_220120.jpg)
+![Image Step Six, alright, what about this outfit?](20160504_214437.jpg)
 Ok so the only thing that isn't nicely covered with _some_ color at least and where it is still just very hand-wavey is that outfit.  To be honest, I can't decide whether it should be a cool color or a warm one.  Further, I have no idea how this fabric should go... I'm making most of this out of my head at this point.  Decide to try a substantial chunk of it in warm from the side the light seems to want to be and see if I can get some folds and bumps in there that help it be more convincing as fabric on a body or blowing/hanging in the air Maxfield Parrish style.
 
 
